@@ -30,7 +30,7 @@
 ### Connect with Me
 
 - 🐦 [Twitter](https://twitter.com/YdwRahul)
-- 📧 Email: ry526076@gmail.com
+- 📧 Email: ry526076+github@gmail.com
 - 📷 [Instagram](https://www.instagram.com/iamrahulydw)
 - 🎥 [Subscribe on YouTube](https://www.youtube.com/@NetGeniusYT)
 
